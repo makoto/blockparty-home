@@ -1,1 +1,0 @@
-# blockparty-home
